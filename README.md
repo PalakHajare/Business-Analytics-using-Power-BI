@@ -1,0 +1,1 @@
+Developed visually compelling and informative data analysis reports to aid executives in making informed decisions, leveraging advanced data visualization techniques to highlight key trends, patterns, and actionable insights.
